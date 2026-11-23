@@ -5,6 +5,7 @@
 📧 **Email**: nidhi.desai990@gmail.com  
 📍 **Location**: New York, NY  
 🔗 **LinkedIn**: [linkedin.com/in/nidhi-desai-843b4a24](https://www.linkedin.com/in/nidhi-desai-843b4a24)  
+📄 **Resume**: [Download PDF](Nidhi-Desai-Resume.pdf)  
 
 ---
 
